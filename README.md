@@ -1,4 +1,5 @@
 ### Hi there👋 I am Induja
+## Pre Final year student persuing Computer science and Engineering from National Institute of Technology Hamirpur
 
 
 
