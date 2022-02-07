@@ -3,6 +3,6 @@
 
 
 
-- 📫 Connect with me on: ...[Linkedin](https://www.linkedin.com/in/induja-kala-0948671ab/)
+- 📫 Connect with me on: [Linkedin](https://www.linkedin.com/in/induja-kala-0948671ab/)
 - 😄 Pronouns: ...she/her
 
